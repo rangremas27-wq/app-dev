@@ -32,4 +32,3 @@ Every season brings a new layer of adventure and emotion.
 ---
 
 *Created by Randy Boy Masujer*
-
